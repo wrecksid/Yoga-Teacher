@@ -1,1 +1,1 @@
-# The-Yoga-Instruct
+# The-Yoga-Teacher
